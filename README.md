@@ -1,0 +1,1 @@
+# redmi-buds-6-active
